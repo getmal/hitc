@@ -1,7 +1,7 @@
 # 大陆5g奭麻花www.5g2.6ghz
 管给他挂电话能拥有自己的手机山娃很及
 
-👉/观/看/入/口👉http://www.baidu.com/link?url=aFQjCpKLyjmMkJDTPPmIM46mcs0b-moe8w2Xe6-iLGqpxJgfWTUHTnAr0yehHs6i&wd
+<a href="https://github.com/getmal/fdwwt/issues/2">👉👉👉♥♥点此进入♥观看入口👈👉👉</a>
 
 大陆5g奭麻花www.5g2.6ghz	二十五、有时候，你最想得到的人，其实是你最应该离开的人。
 在漂泊的三年中，我看到我的妻子在春天穿着那件浅绿色的外套，而在秋天仍然穿着那件浅绿色的外套；看着我妻子的外套，我深感内。
